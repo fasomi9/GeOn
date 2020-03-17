@@ -1,4 +1,4 @@
-https://github.com/fasomi9/GeOn - ( GITHUB )
+https://github.com/fasomi9/GeOn ((GITHUB)). 
 
 откройте браузер 
 
